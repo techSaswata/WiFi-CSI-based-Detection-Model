@@ -9,4 +9,6 @@ And hidden in those ripples is more than just data.
 It can also… sense your soul.
 
 
-## *“Diwaro ke bhi kaan hote hai.”* ❤️
+## “Diwaro ke bhi kaan hote hai.” ❤️
+--
+*didn't beleive? Wait a month...*
